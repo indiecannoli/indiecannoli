@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @indiecannoli
+- 👤 My pronouns are she/her and I'm a libra sun, libra moon, sagittarius rising!
 - 👀 I’m a senior in high school who is interested in computing and graphic design
 - 🌱 I’m currently learning the basics of web development
 - 💞️ I’m looking to collaborate on projects that focus on racial, economic, and gender equality
